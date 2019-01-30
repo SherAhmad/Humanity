@@ -1,7 +1,7 @@
 # Humanity
-As Humans: we all have. responsibilities, towards = other
-== human beings, 
-to take them, out of, Distress /Pain/Sorrow/Harshness/Hardship/Poverty/Humiliation/Embarssments/Dishonorship;
+As Humans: we all have the responsibilities, towards = other
+== human beings!, 
+to take them, out of a, Distress /Pain/Sorrow/Harshness/Hardship/Poverty/Humiliation/Embarssments/Dishonorship;
 lets all pray for the better tomorrow = for our future genrations of this beautiful planet that we all live in! 
 lets not be greedy, because at the end of the day ; you &&, I, go back to our loard -->> for ever --->>>&& for good!,
 therefore why this much hate towards other/another human being/beings?
